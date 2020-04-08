@@ -5,11 +5,11 @@
 
 # Summary 
 Hello, my name is Kenny, and I'm a junior at Brockton High Shool. 
-After high school, i jplan on going to college for some field of engineering - though I'm still debating which one i want to go into. 
+After high school, I plan on going to college for some field of engineering, though I'm not sure yet.  
 
-Outside of school i do a few different things. I like to play videogames, mainly FPS (first person shooters) and games like Minecraft. In season, i like to be in the ice rink either working on my skills or playing in a game. Out of season however, i like to play basketball outside with my freinds, though I'm not very good at it. 
+Outside of school I like to do a few different things. I like to play videogames, mainly FPS (first person shooters) and games like Minecraft. In hockey season, I like to be in the ice rink either working on my skills or playing in a game. Out of season however, I like to play basketball outside with my freinds, though I'm not very good at it. 
 
-When it comes to Tv shows and sports, I like a lot of things. I tend to watch a lot of Netflix and YouTube, but I'll watch football and hockey when they're on. My favorute shows are Arrow and Flash at the moment, and teams are out own home Boston teams!
+When it comes to Tv shows and sports, I like a lot of things. I tend to watch a lot of Netflix and YouTube, but I'll watch football and hockey when they're on. My favorite shows are Arrow and Flash at the moment, and teams are our own home Boston teams!
 ![patriots](https://a2.espncdn.com/combiner/i?img=%2Fi%2Fteamlogos%2Fnfl%2F500%2Fne.png)
 
 # Family
@@ -33,11 +33,12 @@ Needless to say I don't have a lot of skills
 * Occasional Video Editing 
 
 # Gaming
-Some could say that I have an addiction to gaming. Maybe i do. 
+Some could say that I have an addiction to gaming. Maybe I do. 
+For perspective, I have around 600+ hours in Rainbow Six, and possibly 1000+ in Minecraft.
 ![rainbow](https://venturebeat.com/wp-content/uploads/2020/02/r6s-14.png?resize=1024%2C578&strip=all) ![minecraft](https://media.mojang.com/blog-image/2c34ca1217c7d95e76a6f8d646adf9208f78145a/blogmcnet.png)
 Some of my favorite games consist of; Mineraft, Rainbow Six Siege, ARK Survival Evolved, Call of Duty Franchise, and GTA V.
 
-I've been playing games since i was little, and I grew up around Call of Duty. Since then, I've tried playing a handful of different games, and I've grown on to just about anything that has good gameplay and story to it. I like to think that I've become good at FPS's though I'm not pro level. I play most;y to have fun and spend time with friends. 
+I've been playing games since I was little, and I grew up mostly around Call of Duty. Since then, I've tried playing a handful of different games, and I've grown on to just about anything that has good gameplay and/or story to it. I like to think that I've become good at FPS's though I'm not pro level. I play mostly to have fun and spend time with friends. 
 
 To be fully honest, gaming is the easiest pass time for me, and I want to be able to keep playing as long as I can get all of my school tasks out of thr way first. School always comes before games, no matter what. 
 
